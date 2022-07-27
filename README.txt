@@ -1,1 +1,1 @@
-This is my #data #analyst #portfolio https://git0bf.github.io
+This is my data analyst portfolio https://git0bf.github.io
